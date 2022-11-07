@@ -1,5 +1,9 @@
-- 👋 Hi, I’m @0xKazu
-- 👀 I’m informatique lover <3
-- 🌱 I’m currently learning Ethical Hacking , Python , LUA
-- 💞️ I love mickey 
-- 📫 My Discord : 0xKazu#0216
+@0xKazu
+
+<3 : 0xKazuya MA , 0xKazuro , 0xZalko web
+
+* Informatique Lover 
+* Discord server : discord.gg/overdrive
+* Discord # : 0xKazu#4280 
+
+Love your fucking life
